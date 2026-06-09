@@ -3,8 +3,8 @@
 
 caca emil
 
+<img width="1198" height="641" alt="image" src="https://github.com/user-attachments/assets/493372bb-848d-4e36-9f30-54f80111d0f5" />
 
-<img width="645" height="506" alt="image" src="https://github.com/user-attachments/assets/44745dde-96fe-440b-bcd5-46e6b7780a33" />
 
 
 caca emil y su caca pillow
