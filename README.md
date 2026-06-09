@@ -3,7 +3,8 @@
 
 caca emil
 
-<img width="1198" height="641" alt="image" src="https://github.com/user-attachments/assets/493372bb-848d-4e36-9f30-54f80111d0f5" />
+<img width="1130" height="615" alt="image" src="https://github.com/user-attachments/assets/009fe336-6de1-4e1c-b6e3-8671113a22ec" />
+
 
 
 
