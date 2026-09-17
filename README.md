@@ -4,7 +4,7 @@
 
 <p align="center">
 
-working on dis
+i dont even like hetalia all dat much anymore,,, im jsut greedy!!!!!
 
 <img width="709" height="86" alt="image" src="https://github.com/user-attachments/assets/f65ba2a7-e687-4c7b-b80b-27ffbbbe6d10" />
 
